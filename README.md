@@ -1,1 +1,0 @@
-# alymosul.github.io
